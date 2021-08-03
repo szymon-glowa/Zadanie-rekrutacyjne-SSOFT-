@@ -1,1 +1,1 @@
-# Zadanie-rekrutacyjne-SSOFT-
+# Zadanie-rekrutacyjne-SSOFT
